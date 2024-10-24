@@ -1,2 +1,2 @@
 # jeometry-jog
-CHEDAAAA
+CHEDAAAA and jogin
